@@ -1,3 +1,3 @@
-# Cities Skylines
-Hey Wassup
-UYGJWRHKNDM,
+12/13/17 MX:
+- Started The City
+-Roundabout 
